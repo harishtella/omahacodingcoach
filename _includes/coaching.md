@@ -125,7 +125,7 @@ coding-wise and where you want to go. And we can schedule a first
 lesson. The **first 45-minute lesson is absolutely free**. You get to try me
 out with no risk.
 
-After that, if you think I'm worth it, **each individual 45-minute lesson will be $90**
+After that, **each individual 45-minute lesson will be $90**
 
 If decide to quit after you first free trial lesson, no problem, and no
 pressure.
