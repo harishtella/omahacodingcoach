@@ -127,8 +127,9 @@ out with no risk.
 
 After that, if you think I'm worth it, **each individual 45-minute lesson will be $90**
 
-If decide to quit after you first free trial lesson, no problem.
-Hopefully we both learn something.
+If decide to quit after you first free trial lesson, no problem, and no
+pressure.
+Hopefully we both learn something either way.
 
 Looking forward to hearing from you.
 
